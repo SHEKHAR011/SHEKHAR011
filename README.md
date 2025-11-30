@@ -1,1 +1,1 @@
-Shekhar here — I make apps. They work. Mostly.
+_Shekhar here — I make apps. They usually listen to me._
